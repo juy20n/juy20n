@@ -6,4 +6,4 @@ YU
 
 ## Linke
 E-mail: dwd716@naver.com
-Instargram: xxdus__
+### Instargram: xxdus__
